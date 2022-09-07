@@ -50,6 +50,6 @@ One of our main objectives, as we deliver the results to the Counter-Terrorism C
 
 * Explosives and firearms are used the most as we know that they are lethal and can cause mass destruction. Efforts are to be made for eliminating the sources of financial support and weapons for terrorists.
 
-* Taliban and ISIL are the most dangerous groups who carried out the highest number of attacks. Measures have to be taken in order to neutralize the Taliban, ISIL as these groups are found to be the deadliest amounting to more than 1,00,000 deaths in total.Tremendous efforts should be taken in order to neutralize these groups.
+* Taliban and ISIL are the most dangerous groups who carried out the highest number of attacks. Measures have to be taken in order to neutralize the Taliban, ISIL as these groups are found to be the deadliest amounting to more than 1,00,000 deaths in total.
 
 These findings will help the Counter-Terrorism Committee to take adequate measures and guide them to understand where they should focus more. 
